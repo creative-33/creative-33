@@ -1,1 +1,1 @@
-:smile: !Hi There! :smile:
+:smile: !Hi! :smile:
